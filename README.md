@@ -1,7 +1,10 @@
-## <3 I love you all <3
-Hi1
-Hihi2
-Hihihi3
-hihihi-3
-hihi-2
-hi-1
+## Cats.
+A short story by Gabbi Bilic,
+Published by Anthony Bilic.
+
+There are so many cats in the world, but why do people love dogs?
+That's all I got
+*Ha*
+*Goes back to jucing*
+
+~fin
